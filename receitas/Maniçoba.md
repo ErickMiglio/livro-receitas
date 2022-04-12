@@ -11,6 +11,7 @@
 * 1/2 kg de carne de porco assada de forno
 * 1/2 kg de bacon
 * Costelinha de porco defumada
+* 1/2 kg de bucho
 
 ### Modo de Preparo
 
@@ -20,9 +21,11 @@
 
 3. Em uma tigela, corte a calabresa em rodelas, o paio e o bacon. Escalde o charque e junte aos pedaços.
 
-4. Quando estiver bem pretinha a maniva, coloque a carne de porco cortada em pedaços, já assada em forno, e o restante dos ingredientes.
+4. Depois de ferver o bucho em uma panela separada. Junto com os igredientes no próximo passo (5).
 
-5. A maniçoba tem que ficar preta e bem encorpada.
+5. Quando estiver bem pretinha a maniva, coloque a carne de porco cortada em pedaços, já assada em forno, e o restante dos ingredientes.
+
+6. A maniçoba tem que ficar preta e bem encorpada.
 
 
 
